@@ -1,8 +1,8 @@
 import json
 import os
 
-with open('README.md', 'w') as f:
-    f.write('# readme')
+with open(os.path.join('gifs','README.md'), 'w') as f:
+    f.write('# gifs\n')
     for folder in os.listdir('gifs'):
         try:
             with open(os.path.join('gifs', folder, 'data.json')) as g:

@@ -15,7 +15,7 @@ jobs:
         
       - name: python version_bump.py
         run: |
-          python walfie.py
+          python walfie.py; python export.py
       
       - name: commit
         run: |

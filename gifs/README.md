@@ -47,38 +47,6 @@
 
 ![plug & play](https://walfiegif.files.wordpress.com/2023/07/out-transparent-3.gif)
 
-## ninomae-inanis
-
-![mythiversary](https://walfiegif.files.wordpress.com/2023/07/out-transparent-small.gif)
-
-![violet](https://walfiegif.files.wordpress.com/2023/07/out-transparent-122.gif)
-
-![dance](https://walfiegif.files.wordpress.com/2023/07/out-transparent-100.gif)
-
-![cake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-102.gif)
-
-![Unravel](https://walfiegif.files.wordpress.com/2023/07/out-transparent-99.gif)
-
-![hammer](https://walfiegif.files.wordpress.com/2023/07/out-transparent-96.gif)
-
-![pogo](https://walfiegif.files.wordpress.com/2023/07/out-transparent-83.gif)
-
-![mixing](https://walfiegif.files.wordpress.com/2023/07/out-transparent-61.gif)
-
-![watson parade](https://walfiegif.files.wordpress.com/2023/07/out-transparent-47.gif)
-
-![gravity gun](https://walfiegif.files.wordpress.com/2023/07/out-transparent-37.gif)
-
-![wake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-23.gif)
-
-![manager summoning ritual](https://walfiegif.files.wordpress.com/2023/07/out-transparent-21.gif)
-
-![bonk](https://walfiegif.files.wordpress.com/2023/07/out-transparent-17.gif)
-
-![tako drawing](https://walfiegif.files.wordpress.com/2023/07/out-transparent-15.gif)
-
-![consume noodles](https://walfiegif.files.wordpress.com/2023/07/out-transparent-4.gif)
-
 ## amelia-watson
 
 ![Ame cheering](https://walfiegif.files.wordpress.com/2023/06/out-transparent-3.gif)
@@ -188,4 +156,36 @@
 ![zoomer](https://walfiegif.files.wordpress.com/2023/07/out-transparent-9.gif)
 
 ![sand](https://walfiegif.files.wordpress.com/2023/07/out-transparent-1.gif)
+
+## ninomae-inanis
+
+![mythiversary](https://walfiegif.files.wordpress.com/2023/07/out-transparent-small.gif)
+
+![violet](https://walfiegif.files.wordpress.com/2023/07/out-transparent-122.gif)
+
+![dance](https://walfiegif.files.wordpress.com/2023/07/out-transparent-100.gif)
+
+![cake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-102.gif)
+
+![Unravel](https://walfiegif.files.wordpress.com/2023/07/out-transparent-99.gif)
+
+![hammer](https://walfiegif.files.wordpress.com/2023/07/out-transparent-96.gif)
+
+![pogo](https://walfiegif.files.wordpress.com/2023/07/out-transparent-83.gif)
+
+![mixing](https://walfiegif.files.wordpress.com/2023/07/out-transparent-61.gif)
+
+![watson parade](https://walfiegif.files.wordpress.com/2023/07/out-transparent-47.gif)
+
+![gravity gun](https://walfiegif.files.wordpress.com/2023/07/out-transparent-37.gif)
+
+![wake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-23.gif)
+
+![manager summoning ritual](https://walfiegif.files.wordpress.com/2023/07/out-transparent-21.gif)
+
+![bonk](https://walfiegif.files.wordpress.com/2023/07/out-transparent-17.gif)
+
+![tako drawing](https://walfiegif.files.wordpress.com/2023/07/out-transparent-15.gif)
+
+![consume noodles](https://walfiegif.files.wordpress.com/2023/07/out-transparent-4.gif)
 

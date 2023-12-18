@@ -31,6 +31,54 @@
 
 ![consume noodles](https://walfiegif.files.wordpress.com/2023/07/out-transparent-4.gif)
 
+## gawr-gura
+
+![spin](https://walfiegif.files.wordpress.com/2023/07/out-transparent-132.gif)
+
+![mythiversary](https://walfiegif.files.wordpress.com/2023/07/out-transparent-small.gif)
+
+![cake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-108.gif)
+
+![vacuum](https://walfiegif.files.wordpress.com/2023/07/out-transparent-85.gif)
+
+![battleblock](https://walfiegif.files.wordpress.com/2023/07/out-transparent-79.gif)
+
+![shark rap](https://walfiegif.files.wordpress.com/2023/07/out-transparent-77.gif)
+
+![phogs](https://walfiegif.files.wordpress.com/2023/07/out-transparent-75.gif)
+
+![supermarket](https://walfiegif.files.wordpress.com/2023/07/out-transparent-73.gif)
+
+![apex](https://walfiegif.files.wordpress.com/2023/07/out-transparent-55.gif)
+
+![fitness shark](https://walfiegif.files.wordpress.com/2023/07/out-transparent-54.gif)
+
+![taiko shark](https://walfiegif.files.wordpress.com/2023/07/out-transparent-52.gif)
+
+![skipping class](https://walfiegif.files.wordpress.com/2023/07/out-transparent-50.gif)
+
+![watson parade](https://walfiegif.files.wordpress.com/2023/07/out-transparent-47.gif)
+
+![among us](https://walfiegif.files.wordpress.com/2023/07/out-transparent-29.gif)
+
+![skydiving pals](https://walfiegif.files.wordpress.com/2023/07/out-transparent-28.gif)
+
+![a way out](https://walfiegif.files.wordpress.com/2023/07/out-transparent-22.gif)
+
+![manager summoning ritual](https://walfiegif.files.wordpress.com/2023/07/out-transparent-21.gif)
+
+![books](https://walfiegif.files.wordpress.com/2023/07/out-transparent-16.gif)
+
+![boating](https://walfiegif.files.wordpress.com/2023/07/out-transparent-13.gif)
+
+![I’m walkin’ here](https://walfiegif.files.wordpress.com/2023/07/out-transparent-11.gif)
+
+![karaoke](https://walfiegif.files.wordpress.com/2023/07/out-transparent-8.gif)
+
+![rhythm gaming](https://walfiegif.files.wordpress.com/2023/07/out-transparent-7.gif)
+
+![plug & play](https://walfiegif.files.wordpress.com/2023/07/out-transparent-3.gif)
+
 ## amelia-watson
 
 ![Ame cheering](https://walfiegif.files.wordpress.com/2023/06/out-transparent-3.gif)
@@ -140,52 +188,4 @@
 ![zoomer](https://walfiegif.files.wordpress.com/2023/07/out-transparent-9.gif)
 
 ![sand](https://walfiegif.files.wordpress.com/2023/07/out-transparent-1.gif)
-
-## gawr-gura
-
-![spin](https://walfiegif.files.wordpress.com/2023/07/out-transparent-132.gif)
-
-![mythiversary](https://walfiegif.files.wordpress.com/2023/07/out-transparent-small.gif)
-
-![cake](https://walfiegif.files.wordpress.com/2023/07/out-transparent-108.gif)
-
-![vacuum](https://walfiegif.files.wordpress.com/2023/07/out-transparent-85.gif)
-
-![battleblock](https://walfiegif.files.wordpress.com/2023/07/out-transparent-79.gif)
-
-![shark rap](https://walfiegif.files.wordpress.com/2023/07/out-transparent-77.gif)
-
-![phogs](https://walfiegif.files.wordpress.com/2023/07/out-transparent-75.gif)
-
-![supermarket](https://walfiegif.files.wordpress.com/2023/07/out-transparent-73.gif)
-
-![apex](https://walfiegif.files.wordpress.com/2023/07/out-transparent-55.gif)
-
-![fitness shark](https://walfiegif.files.wordpress.com/2023/07/out-transparent-54.gif)
-
-![taiko shark](https://walfiegif.files.wordpress.com/2023/07/out-transparent-52.gif)
-
-![skipping class](https://walfiegif.files.wordpress.com/2023/07/out-transparent-50.gif)
-
-![watson parade](https://walfiegif.files.wordpress.com/2023/07/out-transparent-47.gif)
-
-![among us](https://walfiegif.files.wordpress.com/2023/07/out-transparent-29.gif)
-
-![skydiving pals](https://walfiegif.files.wordpress.com/2023/07/out-transparent-28.gif)
-
-![a way out](https://walfiegif.files.wordpress.com/2023/07/out-transparent-22.gif)
-
-![manager summoning ritual](https://walfiegif.files.wordpress.com/2023/07/out-transparent-21.gif)
-
-![books](https://walfiegif.files.wordpress.com/2023/07/out-transparent-16.gif)
-
-![boating](https://walfiegif.files.wordpress.com/2023/07/out-transparent-13.gif)
-
-![I’m walkin’ here](https://walfiegif.files.wordpress.com/2023/07/out-transparent-11.gif)
-
-![karaoke](https://walfiegif.files.wordpress.com/2023/07/out-transparent-8.gif)
-
-![rhythm gaming](https://walfiegif.files.wordpress.com/2023/07/out-transparent-7.gif)
-
-![plug & play](https://walfiegif.files.wordpress.com/2023/07/out-transparent-3.gif)
 

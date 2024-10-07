@@ -375,3 +375,5 @@
 
 ![Ame sitting](https://i0.wp.com/walfiegif.wordpress.com/wp-content/uploads/2024/09/out-transparent-3.gif)
 
+![Ame waving](https://i0.wp.com/walfiegif.wordpress.com/wp-content/uploads/2024/09/out-transparent-5.gif)
+
